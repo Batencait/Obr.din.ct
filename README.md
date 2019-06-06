@@ -1,1 +1,0 @@
-# Obr.din.ct
